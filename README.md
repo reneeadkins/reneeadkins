@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @reneeadkins
+- 👀 I’m interested in ... EVERYTHING coding
+- 🌱 I’m currently learning ... basics
+- 💞️ I’m looking to collaborate on ... tbd
+- 📫 How to reach me ... right here!
